@@ -1,2 +1,4 @@
 # OpenSleep
-Sleep 2212xx eclipse ready
+Trash Client
+Go Faiths.dev
+LOL
